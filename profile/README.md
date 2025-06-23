@@ -196,15 +196,15 @@ Just follow these **4 simple steps** to redeem your Linux Foundation Promo code
 
 **Step 1:** Visit the Linux Foundation with this special [discount link](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) and click on Join.
 
-[linux foundation official webiste](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfA7PtFWvMnJ4GksdIQC9zOvdHCCdSHVLsdN674EWjlcMalQTwblUyMcX-5PlzQsNSD9CrCJjPGmm1GS3KSoZwwt-xJ6UgdMVcHOVpzU6Ox2UPOELf9PcPSbFrP0nuwd6WLtCRn?key=5fI_2zDiiHmrP87QzjBwipSJ)
+![linux foundation official webiste](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfA7PtFWvMnJ4GksdIQC9zOvdHCCdSHVLsdN674EWjlcMalQTwblUyMcX-5PlzQsNSD9CrCJjPGmm1GS3KSoZwwt-xJ6UgdMVcHOVpzU6Ox2UPOELf9PcPSbFrP0nuwd6WLtCRn?key=5fI_2zDiiHmrP87QzjBwipSJ)
 
 **Step 2:** Select the course and certification, and click on “**Enroll Now**.”
 
-[enroll now](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcyDyfy5SdpjTSCkrrxCW7grxgg9UPE2lakMIZVFwMaVvh-v9N05Yvcstu78YJhYZEOyt4sg2SBnE1m39OyS-ynZ2hIViqKLkWrY0jDtv5gE0_fWvGRLddqJGa75L-GkM-eZzZxWw?key=5fI_2zDiiHmrP87QzjBwipSJ)
+![enroll now](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcyDyfy5SdpjTSCkrrxCW7grxgg9UPE2lakMIZVFwMaVvh-v9N05Yvcstu78YJhYZEOyt4sg2SBnE1m39OyS-ynZ2hIViqKLkWrY0jDtv5gE0_fWvGRLddqJGa75L-GkM-eZzZxWw?key=5fI_2zDiiHmrP87QzjBwipSJ)
 
 **Step 3:** Create an account by providing the necessary details.
 
-[create an account](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdQqSd3Y9o1PluuqG6Dx_BvgwqXfCQ-qKo8UlqKPdCYe1CdLyFW6QvQLqxJwVbzLUcgKkaTAa8RIGCuanRZKduM9BXXjRjWboeQlVQ8PQxBd0m3YVNoNUo4PGeYD8mqHaXe2rnReA?key=5fI_2zDiiHmrP87QzjBwipSJ)
+![create an account](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdQqSd3Y9o1PluuqG6Dx_BvgwqXfCQ-qKo8UlqKPdCYe1CdLyFW6QvQLqxJwVbzLUcgKkaTAa8RIGCuanRZKduM9BXXjRjWboeQlVQ8PQxBd0m3YVNoNUo4PGeYD8mqHaXe2rnReA?key=5fI_2zDiiHmrP87QzjBwipSJ)
 
 **Step 4:** Enter payment details. You can pay using a credit or debit card.
 
